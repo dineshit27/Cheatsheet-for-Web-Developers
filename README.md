@@ -9,7 +9,7 @@
 
 ### Spread the word ,Give it a 🌟
 
-<a href="https://www.twitter.com/adarsh____gupta" target="_blank" rel="noreferrer"><img
+<a href="https://www.linkedin.com/in/dinesh-m-029a0829a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank" rel="noreferrer"><img
 src="https://img.shields.io/twitter/follow/adarsh____gupta?logo=twitter&style=for-the-badge&color=3382ed&labelColor=1c1917"
 /></a>
 
