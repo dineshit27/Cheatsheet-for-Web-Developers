@@ -5,13 +5,11 @@
 
 ### You can learn (!learn) from these booster cheatsheets which will help you have a idea or a just remember all things you forget in these good days
 
-### All contents here are free to use ,unless you give credits to me😁 ,If you dont do these I will take your dog and cats
+### All contents here are free to use ,unless you give credits to me😁....
 
 ### Spread the word ,Give it a 🌟
 
-<a href="https://www.linkedin.com/in/dinesh-m-029a0829a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank" rel="noreferrer"><img
-src="https://img.shields.io/twitter/follow/adarsh____gupta?logo=twitter&style=for-the-badge&color=3382ed&labelColor=1c1917"
-/></a>
+
 
 
 ### The roadMap I chose
